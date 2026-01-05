@@ -4,7 +4,7 @@ A passionate developer from Albania
 - 🌱 I’m currently learning  CompTIA Security+
 - 👯 I’m looking to collaborate on  different project
 - 📫 How to reach me **megi.gremi17@gmail.com**
-- 
+
 Connect with me:
 https://www.linkedin.com/in/megi--gremi/
 
